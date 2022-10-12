@@ -1,10 +1,12 @@
-# Download-IDM-Crack-Full-Version-2022
+#✅ Download-IDM-Crack-Full-Version-2022 ✅
 
 _________________________________
 
-###   Activation: Download IDM Crack Full Version 2022
+###  ✅ Activation: Download IDM Crack Full Version 2022✅
+     ⚠️ disable-windows-defender
 _________________________________
-https://technicalmeer.com/wp-content/uploads/2022/01/internet-download-manager-free-download.jpg
+<img title="" src="https://technicalmeer.com/wp-content/uploads/2022/01/internet-download-manager-free-download.jpg?raw=true" alt="" width="450">
+
  - This script applies the registry lock method to activate the Internet Download Manager (IDM).
 
  - This method requires Internet at the time of activation.
